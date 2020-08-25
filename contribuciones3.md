@@ -73,7 +73,7 @@ Link: https://mega.nz/file/1INBEahR#GoGRdOqFsuIHqYutyfUCM-o36n29bc_cYepVIfaRDCk
 
 /////////////////////////////////////////////////////////////////////////////////////////////////////////////
 
-** Project Stockholm** 
+**Project Stockholm** 
 
 trata de secuestrar a nuestra compañera de clases o profesora, tenemos 2 opciones abusar de ellas o hablar y 
 seguir con la historia
@@ -171,6 +171,6 @@ Link: https://mega.nz/folder/BS4zkahb#DVdcZr3sJmHWmvZ7eLk-fw
 
 /////////////////////////////////////////////////////////////////////////////////////////////////////////////
 
-**The Demon’s Stele & The Dog Princess ** 
+**The Demon’s Stele & The Dog Princess** 
 
 Link: https://fapforfun.net/archives/19071#more-19071
